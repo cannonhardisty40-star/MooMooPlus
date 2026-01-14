@@ -1,4 +1,4 @@
-![alt text](https://i.ytimg.com/vi/g-4Q8wlH0S0/hqdefault.jpg)
+![alt text](https://i.ytimg.com/vi/g-4Q8wlH0S0/hqdefault.jpg
 
 # WELCOME TO MOOMOOPLUS
 
